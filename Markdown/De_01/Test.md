@@ -165,11 +165,169 @@ C. we are to leave the office
 
 D. should leave the office
 
+17\. Look, will you stop _________ in and let me finish my sentence!
+
+A. moving
+
+B. pushing
+
+C. butting
+
+D. plugging
+
+18\. Her young daughters _________ on the sofa, wishing they were out at play.
+
+A. fidgeted
+
+B. shifted
+
+C. twisted
+
+D. moved
+
+19\. 'Have you decided on a present yet?' --- 'Almost. I need to choose one of __________.'
+
+A. exciting new two spy novels
+
+B. two spy exciting new novels
+
+C. new two exciting spy novels
+
+D. two exciting new spy novels
+
+20\. I got very nervous during the exam. When the examiner asked my name, my mind went completely _________.
+
+A. empty
+
+B. blank
+
+C. white
+
+D. void
+
+21\. Some people are __________ interested in animals than in other people.
+
+A. further
+
+B. far more
+
+C. much
+
+D. most
+
+22\. There's a rumor that the National Bank is going to _________ the company I work for.
+
+A. take over
+
+B. overtake
+
+C. take on
+
+D. take off
+
+23\. The guidance counselor urged ______ a foreign language.
+
+A. all of us studying
+
+B. us all to study
+
+C. all that we study
+
+D. that all we study
+
+24\. I hope he won't be disappointed. He seems ______ confident for his own good.
+
+A. so very
+
+B. much too
+
+C. extremely
+
+D. more than
+
+25\. Snakes have an organ in a pit on their heads _________ infrared rays.
+
+A. detects
+
+B. a detection of
+
+C. it detects
+
+D. that detects
+
+26\. She has a 12-year-old and a 5-year-old, so I guess I spoke to the ______ two.
+
+A. older one out of
+
+B. one who is older than the
+
+C. older of the
+
+D. older than the
+
+27\. Everyone congratulated Judy on her suggestion, but actually I thought of it __.
+
+A. first
+
+B. at first
+
+C. firstly
+
+D. at the beginning
+
+28\. It was ______ hot day that we decided to leave work early and go to the beach.
+
+A. so
+
+B. such
+
+C. a so
+
+D. such a
+
+29\. 'Have we got enough flour for the cake?' --- 'I ______. I'd better go out and buy more.'
+
+A. think so
+
+B. think not
+
+C. don't think
+
+D. think it isn't
+
+30\. He told his father a long and ______ story to explain his lateness.
+
+A. inconceivable
+
+B. unconvincing
+
+C. unimaginable
+
+D. incredulous
+
+31\. He _______ me to believe that they had left the district.
+
+A. made
+
+B. led
+
+C. assured
+
+D. confirmed
+
+32\. I do wish you two boys would be more ______ to the others in the class.
+
+A. dominant
+
+B. alert
+
+C. careful
+
+D. respectful
+
 **Read the following passage and mark the letter A, B, C, or D on your answer sheet to indicate the correct answer to each of the questions.**
 
-*Martin Symington went on a camping safari holiday with his wife and three*
-
-*teenagers.*
+*Martin Symington went on a camping safari holiday with his wife and three teenagers.*
 
 We stood silently under the stars, just meters from our tent, hardly daring to breathe. Adam, one of the camp staff, swept a torch beam across a clearing where four impala stood, panicky on their nimble legs. Could they sense the danger they were in? Did they know, as we did, that a female leopard lay under a thorn bush?
 
